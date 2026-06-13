@@ -1,0 +1,1 @@
+yesterday dinner昨日のご飯は鶏肉とご飯です。
